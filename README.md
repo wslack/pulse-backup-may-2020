@@ -1,1 +1,1 @@
-![screenshot](/https/ScreenShot 2020-06-09 at 4.23.30 PM.png)
+![screenshot](https/Screen%20Shot%202020-06-09%20at%204.23.30%20PM.png
